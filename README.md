@@ -1,21 +1,21 @@
 <div align="center">
 
-![](https://file.garden/ZuZ2lbGXMH8X3xdK/github%20stuff/dividers/maskydiv2.webp)
+![]([https://file.garden/ZuZ2lbGXMH8X3xdK/github%20stuff/dividers/maskydiv2.webp](https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj))
 
-[main rentry](https://rentry.co/maidofIife) + [extended](https://rentry.co/tanesob) + [atabook](https://tanesobs.atabook.org/) + [commission info](https://rentry.co/tanesobs) + [pronouns.cc](https://pronouns.cc/@theactualnerdemoji)
+[strawpage]([https://rentry.co/maidofIife](https://swiliixs.straw.page/)) + [atabook](https://atabook.org/) + [pronouns. page]([https://rentry.co/tanesobs](https://en.pronouns.page/@swiliix))
 
 rentry 4 pt is wip
 
 <p align="center">
-  <img src="https://file.garden/ZuZ2lbGXMH8X3xdK/github%20stuff/graphic/maskygraphic.webp" width="400"/>
+  <img src="https://64.media.tumblr.com/bdbd12075f5c57b6993c48d2155cd665/a7e6df3bb37ce7ec-cb/s400x600/683b273bd8f426c1545540f51dbccb520f602954.gifv" width="400"/>
 </p>
 
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=idiosyncraticNerd&color=080e4d" />
 </p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4oknir6tyb2ud3ydz4d6g7cdw&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=true&bar_color=000000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mu8srrxfguvsgwzmvp9ik2w0s&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=bababa&bar_color_cover=false&mode=light)](https://spotify-github-profile.kittinanx.com/api/view?uid=mu8srrxfguvsgwzmvp9ik2w0s&redirect=true)
 
-<p align="center">all art used by thaliiiq on twitter</p>
+<p align="center">layout by [@yuriclown](https://github.com/yuriclown)</p>
 
-![](https://file.garden/ZuZ2lbGXMH8X3xdK/github%20stuff/dividers/maskydiv1.webp)
+![]([https://file.garden/ZuZ2lbGXMH8X3xdK/github%20stuff/dividers/maskydiv1.webp](https://64.media.tumblr.com/4b7d56533eda20eaea74b4734f3a01f6/136f59329199be26-cb/s400x600/8fb106ebcc5486258456d07607c1ce367bb19c51.pnj))
