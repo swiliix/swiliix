@@ -4,9 +4,9 @@
 
 [strawpage](https://swiliixs.straw.page/) + [pronouns.page](https://en.pronouns.page/@swiliix)
 
+attack my [ARTFIGHT](https://artfight.net/~swiliix)!!!
 
 <p align="center">
-  attack my [ARTFIGHT](https://artfight.net/~swiliix)!!!
   <img src="https://64.media.tumblr.com/bdbd12075f5c57b6993c48d2155cd665/a7e6df3bb37ce7ec-cb/s400x600/683b273bd8f426c1545540f51dbccb520f602954.gifv" width="400"/>
 </p>
 
