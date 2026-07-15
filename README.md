@@ -11,8 +11,10 @@ attack my [ARTFIGHT](https://artfight.net/~swiliix)!!!
 </p>
 
 <p align="center">
-  <img src="https://hit.yhype.me/github/profile?account_id=231086223&color=080e4d" />
+  <img src="https://komarev.com/ghpvc/?username=idiosyncraticNerd&color=080e4d" />
 </p>
+
+![](https://hit.yhype.me/github/profile?account_id=231086223)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=mu8srrxfguvsgwzmvp9ik2w0s&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=dae7da&bar_color_cover=false&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=mu8srrxfguvsgwzmvp9ik2w0s&redirect=true)
 
